@@ -1,4 +1,4 @@
-📚 Resources for Referenc
+## 📚Resources for Reference
 
 The following materials were used as references and data sources for this study. All resources were accessed and utilized strictly for academic purposes:
 
